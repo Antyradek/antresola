@@ -12,6 +12,7 @@ Myślą nad tym, gdzie zjeść bankiet i lecą do wulkanu.
 Tymczasem trafiają na Pyroqa. Dochodzi do kłótni i Pyroq odlatuje.
 
 Kula zawozi ich poprzez górną warstwę na Felicję.
+Po drodze spotykają dziadka w wannie przemierzającego kosmos, a Katarzyna Kosmata wyjaśnia czym jest Uniwersalność.
 Tam razem z Nadarem i rodziną lecą na Potworan.
 Na Potworanie czeka na nich Plazma, który opisuje, co go czeka.
 Plazma pobiera od niego włosa.
@@ -47,4 +48,17 @@ Pakują się, dołącza do nich Ewa w tramwaju głośno wołając.
 Jadą do tajnego schronu, gdy zabawa się zaczyna.
 Eterna i Mikołaj nadają komunikaty o końcu świata.
 
+Mikołaj przy kominku opalanym przez Plazmę zaczyna opowieść o tym, czym jest Antresola i którzy z ich władców są Reptilianami
+Zejście się stabilizuje, początkowo widać całkowity chaos i losowość.
+Mikołaj grzecznie informuje, że wszyscy zginą.
 
+---
+Rafał leci z jakimś potworem i kimś jescze na Wizynę.
+
+---
+Rafał przejmuje władzę nad starą Antresolą i każe walczyć z Zejściem, ale źle się to kończy.
+Powstaje wiele dziwacznych struktur.
+Wizini atakują go za zabranie im jedynego źródła dochodu.
+
+Potwory przyznają mu, że chyba może do nich dołączyć wręczając mu komunikator na pożegnanie.
+Rafał się pyta, czy dostanie genetycznie modyfikowane kwiaty także.
