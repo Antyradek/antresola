@@ -118,7 +118,68 @@ Strzelają w niego, on wykrzywia lufy ich broni.
 Jeden z żołnierzy uderza w twarz Ewę.
 Ferro wpada w furię i rozpada go na kawałeczki za pomocą żelaza we krwi.
 Wszędzie jest krew, Ferro nie kontroluje siebie i goni uciekającą resztę.
-Nadar i Ewa wychodzą z groty.
+Nadar tłumaczy Ewie, że nie wolno im zabijać, a Ferro czasami nie panuje nad sobą.
+Nadar i Ewa wychodzą z groty i widzą, że są otoczeni. Postanawiają wrócić.
+
+Wracając znajdują dużą grotę, w snopie światła siedzi Ferro zbryzgany resztkami ludzkimi.
+Nadar stara się powstrzymać Ewę, gdy ta powoli podchodzi do płaczącego Ferra.
+Podchodzi i przytula się uspokajając go, że nikt nie jest idealny.
+Ferro wyjawia jej, że czasami traci kontrolę i nie raz zamordował w okrutny sposób dzieci.
+Nadar podchodzi i też się przytula.
+
+Tymczasem Jakub nastawia na Mikołaja i Plazmę pułapkę myśląc, że są wytworem Zejścia.
+Wpadają w nią, ale nic im nie robi, pytają się jedynie Jakuba co on odpierdala.
+Jakub wyjaśnia im, że Zejście zachowuje się jak ciało bez mózgu i że można przejąć nad nim kontrolę.
+Zauważa, że pole magnetyczne potrafi ruszać elementami.
+
+Ferro, Ewa i Nadar idą na spotkanie reszty.
+Nadarowi udaje się podłuchać rozkazy prezydenta USA, 
+który jest mało zadowolony z efektów i każe powtórzyć eksperyment z zejściem na innym mieście.
+Potwory nie mogą do tego dopuścić.
+
+Jakub proponuje stworzyć statek z leżących wokół śmieci.
+Ferro będzie sterował złomem, Plazma zespawa, Mikołaj zespoli wszystko lodem, a Plazma będzie pobierał ciepło z metalowych elementów.
+Nadar, Ewa i Jakub będą w środku.
+Wylecieli w górę lecąc w stronę Waszyngtonu.
+
+Prezydent każe strzelać, wysyła myśliwce, ale Ferro bez problemu je odpycha i deaktywuje. Uruchamia im katapulty.
+Mikołaj zapowiada turbulencje. Proponuje lody o smaku lodu.
+Mikołaj też chce spróbować i dorabia z przodu zestaw reniferów, zmienia kształt statku, robi sobie brodę i rzuca lodowymi prezentami.
+- Byliście bardzo niegrzeczni w tym roku, dostaniecie wszyscy rózgi.
+W końcu widać Biały Dom, Plazma mówi, że prezydenta na pewno tam nie ma, ale są jego znajomi, których łatwo można torturować.
+Ewa pyta się, czy jest jakaś alternatywa, a Ferro odpowiada, że nie ma z nimi Psychita.
+
+Wmuszają statek tak, że zatrzymuje się tuż przed wejściem.
+Używając potrójnej tarczy bronią się przed strzelającymi żołnierzami i jak gdyby nigdy nic wchodzą do środka.
+Nie ma nikogo z kim możnaby porozmawiać, w głównej sali jest pusto.
+- Czy to oznacza, że teraz to my mamy władzę nad stanami?
+Mikołaj naciska guzik przy biórku i nadaje komunikat jako nowy prezydent.
+Jego pierwszym dekretem jest zakaz noszenia spodni.
+Ewa zwraca uwagę, że to marny dowcip.
+Poprawia się, że mają te spodnie nosić na głowie jako oficjalne nakrycie głowy.
+Ewa kręci głową.
+Mikołaj prosi o lody.
+
+Postanawiają iść do podziemia, a przynajmniej poszukać.
+Nic nie znajdują i wychodzą przez budynek. Wokoło mnóstwo policji.
+Wracają do środka i dzwonią do wszystkich reptylianów. Przekazują informację, że wykopią ich z powrotem na ich planetę.
+Postanawiają poczkać, aż prezydent z powrotem do nich zadzwoni, w między czasie robią sobie obiad.
+
+Nadar ze swoim komunikatorem robi vloga po domu, czyta dokumenty i przegląda książki.
+Ogląda talerze, przez przypadek coś zbije itp.
+W końcu nie wytrzymują i prezydent się z nimi kontaktuje.
+Zgodził się być posłuszny, jeśli tylko zatrzymają go przy władzy.
+Nadar się śmieje, ale Potwory okazują się przystać na to rozwiązanie.
+Zgodził się przekazać tę informację reszcie reptylianów.
+I powiedzieli, że ma sobie zostawić Rafała i niech lepiej nie pokazuje się na oczy.
+
+Potwory wychodzą z Białego Domu, nikt w nich nie strzela, tylko parzą z nienawiścią.
+Ferro straszy ich tak, że się przewracają.
+Znikają idąc w stronę zachodzącego słońca.
+Sprawa nie została dokończona, Plazma się pyta Ewę i Jakuba, czy chcą zostać agentami ALOPP i pomóc w dokończeniu zabawy.
+Jakub od razu przystaje, Ewa się waha.
+
+
 
 
 
