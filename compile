@@ -1,0 +1,13 @@
+#!/bin/bash
+SVGS=$(ls page*.svg)
+
+for SVG in $SVGS
+do
+    inkscape -b ffffff -d 150 -e $SVG.png $SVG
+    echo $SVG
+done
+
+7z a antresola.cb7 page*.png
+tar -c -f antresola.cbt page*.png
+7z a -tzip antresola.cbz page*.png
+7z a -trar antresola.cbr page*.png
